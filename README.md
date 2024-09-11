@@ -1,5 +1,5 @@
 - 👋Olá, chamo-me Ariel <3
-- 👀 Estou interessada em Engenharia da Computação
+- 👀 Estou atualmente estudando Engenharia da Computação
 - 🌱 Estou atualmente aprendendo coreano
 - 📫 Como me contactar LinkedIn & Github & Email
 - 😄 Pronomes: Ela/dela
