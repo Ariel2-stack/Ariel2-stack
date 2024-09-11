@@ -1,4 +1,4 @@
-- 👋Olá, chamo-me @Ariel2-stack
+- 👋Olá, chamo-me Ariel <3
 - 👀 Estou interessada em Engenharia da Computação
 - 🌱 Estou atualmente aprendendo coreano
 - 📫 Como me contactar LinkedIn & Github & Email
